@@ -1,0 +1,3 @@
+Film er en række billeder, der bliver vist så hurtigt, at de skaber en illusion af bevægelse. Oftest er billederne kombineret med lyd og er, skønt ikke meget ældre end hundrede år, en central kunstform i nutiden. Med et umiddelbart forståeligt billedsprog kan film opleves af stort set alle mennesker, og film kan underholde og oplyse. De skabes overalt på kloden og kan lære mennesker at forstå andre kulturer end deres egen. Samtidig er film forretning, og markedsmekanismer spiller ind på en films muligheder og skæbne.
+
+Teknikken blev opfundet i slutningen af det 19. århundrede, læs også filmhistorien. Film kan belønnes med priser til filmfestivaler. Fx er Oscar siden 1929 uddelt til film i talrige kategorier.
